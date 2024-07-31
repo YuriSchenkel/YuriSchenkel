@@ -1,4 +1,4 @@
-### Olá, eu sou Yuri Schenkel! 👋
+### Olá, eu sou Yuri Schenkel Dalle Teze! 👋
 
 🔍 **Informações Pessoais:**
 
