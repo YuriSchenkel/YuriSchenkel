@@ -11,7 +11,7 @@
 
 - 💻 Curso Técnico em Desenvolvimento de Sistemas: Senai 
 - 🌟 Curso Desenvolvendo Talentos: Unimater
-- 🎓 Bacharelado em Sistemas de Informação: Unimater (4° período, previsão de conclusão: 2026)
+- 🎓 Bacharelado em Sistemas de Informação: Unimater (6° período, previsão de conclusão: 2026)
 
 ---
 
